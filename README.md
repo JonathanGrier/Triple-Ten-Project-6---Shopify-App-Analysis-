@@ -57,3 +57,14 @@ Folder Structure:
 
 README.md – Project description and documentation
 
+
+Links:
+
+App Landscape - https://1drv.ms/u/c/6ca61715baa509d0/Eb3UZqAm16JAqxQ3282YZ18BlPg88bwZqnNnBXQ_ZBv0fg?e=j6bSNA
+
+App Reviews - https://1drv.ms/u/c/6ca61715baa509d0/EW3HlbSCqGVHrNG4BeMDwrwBMLgGfAQv7ja62dUdsYuoyg?e=SE0LWh
+
+REviews - https://1drv.ms/u/c/6ca61715baa509d0/EcasoQliwJVNkk8wkvzGi58BL79NW5uaUGzyPieaX4soCg?e=CyqRHw
+
+
+
